@@ -1,0 +1,1 @@
+# Qodir_projek1
